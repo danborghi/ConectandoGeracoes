@@ -20,8 +20,4 @@
 
 * Um futuro mais inclusivo e interconectado para todas as gerações.
 
-**#UniFil #Extensão #ConectandoGerações**
-
-**---**
-
 
